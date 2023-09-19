@@ -10,4 +10,4 @@ joao.ricchiero@escola.pr.gov.br
 instagram:@xcs_miranha
 
 
-![](https://tenor.com/pt-BR/view/eye-rolling-eyes-gif-10217929)
+![](https://media.tenor.com/9yy0MfToKfMAAAAd/renato-augusto-ra8.gif)
